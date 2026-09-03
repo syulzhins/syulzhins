@@ -27,4 +27,4 @@
 
 ### 📫 Связь
 
-[Telegram](@syuzlhins) · syulzhins@gmail.com
+[Telegram](https://t.me/syulzhins) · syulzhins@gmail.com
